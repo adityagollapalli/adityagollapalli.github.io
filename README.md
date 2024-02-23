@@ -1,1 +1,0 @@
-# adityagollapalli.github.io
